@@ -1,0 +1,6 @@
+---
+title: Cameron Thomas
+---
+
+- Birthday
+	 - 
